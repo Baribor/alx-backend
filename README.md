@@ -1,0 +1,1 @@
+# Short Specialiazation projects
